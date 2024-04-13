@@ -1,4 +1,5 @@
-I am **Htet Zarni Htun**.
+I am **Htet Zarni Naing**.
+
 I'm graduated from _Myanmar Aerospace Engineering University_ with a major in Electrical Systems and Instrumentation. 
 I'm passionate about applying my skills in the oil and gas industry to contribute to innovative projects and solutions.
 Had Job experiences in service advisor at automotive company and operational management at purified drinking water factory.
